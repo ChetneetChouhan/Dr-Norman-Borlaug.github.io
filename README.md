@@ -1,1 +1,0 @@
-# Dr-Norman.github.io
